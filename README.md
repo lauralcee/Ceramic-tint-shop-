@@ -1,1 +1,2 @@
-# Ceramic-tint-shop-
+# Ceramic Tint
+Ceramic Window Tint With a ceramic-infused window tint, nanotechnology is the name of the game. It’s a multiple-layered film that uses microscopic ceramic particles that are nonconductive to block nearly 99.9% of UVA and UVB. The lack of metals in the film helps improve cell phone and electronic device signal strength. So always check [Ceramic tint shop near me](https://www.shellshockedwraps.com/howpaintcorrectionworks) so your find good one.
